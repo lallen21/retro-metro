@@ -1,1 +1,2 @@
 # retro-metro
+Step into Retro Metro, a forgotten city caught between the past and the future. In Pace Retro, you play as a lone drifter navigating neon streets, abandoned trains, and hidden alleys where time seems frozen. Each choice you make unravels pieces of a broken world—and your place in it.
